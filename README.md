@@ -10,4 +10,4 @@
 
 本页面汇聚了男同题材与国产精品相关的资源，涵盖盗摄、自拍等独特内容。支持高清流畅播放，用户无需注册即可轻松浏览，享受纯净的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hay20250709/hay5 ）</span>
